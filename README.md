@@ -1,1 +1,0 @@
-# ainulzml.github.io
